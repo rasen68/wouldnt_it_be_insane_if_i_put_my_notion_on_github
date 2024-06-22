@@ -23,6 +23,7 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - bibideba translyrics
 - episodic dr who style story
 - the strugglers (custom ttrpg)
+- mimikyu song
 - the rest of my original songs folder
 
 ### freezer (ideas, haven't started, may never)
@@ -38,4 +39,5 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - your brain on me (song idea)
 - headphone cord (song idea)
 - 愛し合えなくても (song idea)
+- you belong with me kataomoi remix
 - drawabox (art course)
