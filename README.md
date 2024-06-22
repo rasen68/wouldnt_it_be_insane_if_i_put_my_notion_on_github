@@ -16,6 +16,8 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 
 ### backburner (roughly sorted by probably soon to probably never):
 - custom mtg set
+- rip jeans
+- acoustic fingerstyle playlist
 - silhouette translyrics + cover
 - bling bang bang born translyrics + cover
 - bibideba translyrics
@@ -32,3 +34,5 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - review old lyrics
 - gira gira / lose yourself mashup
 - remake boss battle (very old song)
+- get back into swimming
+- drawabox (art course)
