@@ -35,4 +35,7 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - gira gira / lose yourself mashup
 - remake boss battle (very old song)
 - get back into swimming
+- your brain on me (song idea)
+- headphone cord (song idea)
+- 愛し合えなくても (song idea)
 - drawabox (art course)
