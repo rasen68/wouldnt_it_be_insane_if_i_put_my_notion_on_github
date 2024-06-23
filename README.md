@@ -41,3 +41,5 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - 愛し合えなくても (song idea)
 - you belong with me kataomoi remix
 - drawabox (art course)
+
+# ”Adventure leads you into the world. Love brings you home.” — Homeward Path, Secret Lair Drop #1467
