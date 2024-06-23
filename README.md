@@ -37,6 +37,7 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - remake boss battle (very old song)
 - get back into swimming
 - your brain on me (song idea)
+- 8 bit blossom remix
 - headphone cord (song idea)
 - 愛し合えなくても (song idea)
 - you belong with me kataomoi remix
