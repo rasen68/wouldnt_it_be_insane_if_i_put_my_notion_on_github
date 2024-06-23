@@ -30,6 +30,14 @@ Akira
 Grave of the Fireflies
 Perfect Blue, Paprika, and Millenium Actress (because Satoshi Kon)
 5 Centimeters per Second
+Love Actually
+Last Train Home
+
+### Other
+Transistor (because i still haven't played it after a friend bought it for me 2 years ago)
+Melanie Martinez 
+Bossa Nova (the entire genre of music i guess)
+Bartkira (..thing)
 
 ### anime and manga from my old anime list that i realistically am never going to watch/read
 Toki wo Kakeru Shoujo 
