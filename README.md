@@ -12,7 +12,8 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - cover of nothing's working out by meiyo
 - unnamed song
 - hey there delilah in a minor
-- whatever this repo is
+- silly gameshow
+- silly crossword
 
 ### backburner (roughly sorted by probably soon to probably never):
 - custom mtg set
