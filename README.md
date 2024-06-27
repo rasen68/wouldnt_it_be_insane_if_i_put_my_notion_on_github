@@ -12,7 +12,8 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - cover of nothing's working out by meiyo
 - unnamed song
 - hey there delilah in a minor
-- - silly crossword
+- silly crossword
+- learning hysteria by muse on bass (yes i just got this thing)
 
 ### backburner (roughly sorted by probably soon to probably never):
 - custom mtg set
