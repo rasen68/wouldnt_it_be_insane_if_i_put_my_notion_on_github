@@ -13,7 +13,6 @@ Oyasumi Punpun by Asano Inio
 Space Brothers by Koyama Chūya
 
 ### Anime
-Delicious in Dungeon (mostly here because it's new may never watch)
 Made in Abyss
 Death Parade
 Ping Pong: The Animation
@@ -36,6 +35,7 @@ Last Train Home
 ### Other
 Transistor (because i still haven't played it after a friend bought it for me 2 years ago)
 Melanie Martinez 
+Jonathan Coulton
 Bossa Nova (the entire genre of music i guess)
 Bartkira (..thing)
 
