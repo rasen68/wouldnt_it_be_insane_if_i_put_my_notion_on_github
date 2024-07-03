@@ -18,14 +18,15 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - silly crossword
 - learning bass i think??
 - rip jeans
+- acoustic fingerstyle playlist
 
 # "And we fall in love with the broken world all over again." — John Green, THE BEST DAY
 
 ### backburner (roughly sorted by probably soon to probably never):
 - bitcrush (rhythm game rpg)
 - custom mtg set
-- acoustic fingerstyle playlist
 - silhouette translyrics + cover
+- spikeball (song)
 - bibideba translyrics
 - episodic dr who style story
 - the strugglers (custom ttrpg)
