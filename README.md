@@ -17,7 +17,6 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - hey there delilah in a minor
 - silly crossword
 - learning bass i think??
-- rip jeans
 - acoustic fingerstyle playlist
 
 # "And we fall in love with the broken world all over again." — John Green, THE BEST DAY
@@ -52,4 +51,4 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - 愛し合えなくても (song idea)
 - you belong with me kataomoi remix
 - drawabox (art course)
-
+- video: what do we use supercomputers for?
