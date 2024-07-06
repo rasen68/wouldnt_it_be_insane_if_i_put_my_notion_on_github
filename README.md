@@ -15,8 +15,6 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - learning bass i think??
 - acoustic fingerstyle playlist
 
-# "And we fall in love with the broken world all over again." — John Green, THE BEST DAY
-
 ### backburner (roughly sorted by probably soon to probably never):
 - bitcrush (rhythm game rpg)
 - custom mtg set
@@ -28,8 +26,6 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - mimikyu song
 - bling bang bang born translyrics + cover
 - the rest of my original songs folder
-
-# "为了你热爱的音乐做任何你想做的事." — Qu Guo, Advice for Studying Music
 
 ### freezer (ideas, haven't started, may never)
 - araca (conlang)
