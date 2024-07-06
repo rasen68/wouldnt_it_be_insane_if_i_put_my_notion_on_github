@@ -1,7 +1,9 @@
 # "Adventure leads you into the world. Love brings you home." — Homeward Path SLD #1467
 
+probably don't tell me if you found this somehow
+
 ### stats:
-Rui, Chris, sometimes Rasen | 18 | ABC | he/him | 5'7" | 135 lbs | ENFP-A (<- i just took the test so i could put it heT)
+Chris, Rui, sometimes Rasen | 18 | ABC | he/him | 5'7" | 135 lbs | ENFP-A (<- i just took the test so i could put it heT)
 
 computer science, lyrics, teaching, chinese cooking, storytelling, japanese, mandarin, j->e translation, songwriting, guitar, fencing, 
 math i guess, rapping, mixing, running, piano, ice skating, rock climbing, linguistics, ms paint art??, magic the gathering
