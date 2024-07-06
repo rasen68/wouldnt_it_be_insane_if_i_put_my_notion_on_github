@@ -44,5 +44,6 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - headphone cord (song idea)
 - 愛し合えなくても (song idea)
 - you belong with me kataomoi remix
+- starships idk sad remix
 - drawabox (art course)
 - video: what do we use supercomputers for?
