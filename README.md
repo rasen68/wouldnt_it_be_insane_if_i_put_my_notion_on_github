@@ -2,7 +2,7 @@
 
 probably don't tell me if you found this somehow
 
-### stats:
+### stats
 Chris, Rui, sometimes Rasen | 18 | ABC | he/him | 5'7" | 135 lbs | ENFP-A (<- i just took the test so i could put it heT)
 
 computer science, lyrics, teaching, chinese cooking, storytelling, japanese, mandarin, j->e translation, songwriting, guitar, fencing, 
