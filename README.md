@@ -1,4 +1,4 @@
-# "頑張れ、俺. 最近そんな感じ." — Yō, NEXT COLOR PLANET Solo Guitar Arrange
+# "Adventure leads you into the world. Love brings you home." — Homeward Path SLD #1467
 
 ### stats:
 Rui, Chris, sometimes Rasen | 18 | ABC | he/him | 5'7" | 135 lbs | ENFP-A (<- i just took the test so i could put it heT)
