@@ -9,6 +9,8 @@ on an iPhone 6 camera
 I had the burning thought that I didn't want to forget how incredible it seemed to me that those crystals could form
 
 so I tried anyway
+
+also space and animals and bugs are cool
 ### Strand Bookstore, New York, New York
 kind of a museum, too
 
