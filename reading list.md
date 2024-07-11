@@ -1,10 +1,12 @@
 ### Books
+- Toxic Positivity by Whitney Goodman (just bought this)
 - Invisible Cities by Italo Calvino
 - The Quran by God
 - Winning Ways for your Mathematical Plays by Elwyn Berlekamp, John Conway, and Richard Guy
 - The Three-Body Problem by Liu Cixin 
 - Wild Swans by Jung Chang
 - The Fault in Our Stars by John Green
+- Everything by Haruki Murakami tbh
 
 ### Manga
 - Berserk by Miura Kentarō
