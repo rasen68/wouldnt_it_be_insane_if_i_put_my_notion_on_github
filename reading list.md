@@ -38,6 +38,9 @@
 - Transistor (because i still haven't played it after a friend bought it for me 2 years ago)
 - Melanie Martinez 
 - Jonathan Coulton
+- Porter Robinson
+- 21 pilots vessel
+- blink 182
 - Bossa Nova (the entire genre of music i guess)
 - Bartkira (..thing)
 
@@ -63,4 +66,3 @@
 - Billy Bat
 - One Punch Man
 - Vagabond
-- Pokemon Adventures
