@@ -13,13 +13,14 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - cover of nothing's working out by meiyo
 - unnamed song
 - hey there delilah in a minor
-- silly crossword
 - learning bass i think??
-- acoustic fingerstyle playlist
 
 ### backburner (roughly sorted by probably soon to probably never):
+- acoustic fingerstyle playlist
+- lead guitar playlist
 - bitcrush (rhythm game rpg)
 - custom mtg set
+- silly crossword
 - silhouette translyrics + cover
 - spikeball (song)
 - bibideba translyrics
@@ -30,6 +31,7 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - the rest of my original songs folder
 
 ### freezer (ideas, haven't started, may never)
+- scamp music library song
 - araca (conlang)
 - trolley problem game
 - make a japanese course
