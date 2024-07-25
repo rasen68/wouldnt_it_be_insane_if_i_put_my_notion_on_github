@@ -15,6 +15,8 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - learning bass i think??
 - custom mtg set
 - playlist review
+- mesmerizer translyrics
+- not a devil translyrics
 
 ### backburner (roughly sorted by probably soon to probably never):
 - unnamed song
