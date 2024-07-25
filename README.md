@@ -11,15 +11,16 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 ### stovetop (projects worked on in the last week)
 - wanikani (learning japanese via kanji srs)
 - cover of nothing's working out by meiyo
-- unnamed song
 - hey there delilah in a minor
 - learning bass i think??
+- custom mtg set
+- playlist review
 
 ### backburner (roughly sorted by probably soon to probably never):
+- unnamed song
 - acoustic fingerstyle playlist
 - lead guitar playlist
 - bitcrush (rhythm game rpg)
-- custom mtg set
 - silly crossword
 - silhouette translyrics + cover
 - spikeball (song)
