@@ -7,6 +7,7 @@
 - Wild Swans by Jung Chang
 - The Fault in Our Stars by John Green
 - Everything by Haruki Murakami tbh
+- Alice Isn't Dead by Joseph Fink
 
 ### Manga
 - Berserk by Miura Kentarō
@@ -39,11 +40,13 @@
 - Transistor (because i still haven't played it after a friend bought it for me 2 years ago)
 - Melanie Martinez 
 - Jonathan Coulton
+- kentucky route zero
 - Porter Robinson
 - 21 pilots vessel
 - blink 182
 - Bossa Nova (the entire genre of music i guess)
 - Bartkira (..thing)
+- The Left-Right game (podcast)
 
 ### anime and manga from my old anime list that i realistically am never going to watch/read
 - Toki wo Kakeru Shoujo 
