@@ -38,6 +38,7 @@
 
 ### Other
 - Transistor (because i still haven't played it after a friend bought it for me 2 years ago)
+- 1000x Resist
 - Melanie Martinez 
 - Jonathan Coulton
 - kentucky route zero
