@@ -36,6 +36,7 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 
 ### freezer (ideas, haven't started, may never)
 - scamp music library song
+- ukulele song
 - araca (conlang)
 - trolley problem game
 - make a japanese course
