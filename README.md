@@ -15,7 +15,6 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - learning bass i think??
 - custom mtg set
 - homecoming serf cover
-- playlist review
 - mesmerizer translyrics
 - not a devil translyrics
 
