@@ -30,6 +30,7 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - episodic dr who style story
 - the strugglers (custom ttrpg)
 - mimikyu song
+- idol translyrics
 - bling bang bang born translyrics + cover
 - the rest of my original songs folder
 
