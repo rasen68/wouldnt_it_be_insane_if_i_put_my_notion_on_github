@@ -45,6 +45,7 @@
 - Porter Robinson
 - 21 pilots vessel
 - corinne rae bailey or whatever he namewas
+- swae lee
 - blink 182
 - Bossa Nova (the entire genre of music i guess)
 - Bartkira (..thing)
