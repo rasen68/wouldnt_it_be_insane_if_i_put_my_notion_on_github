@@ -23,6 +23,7 @@
 - Gurren Lagann
 - FLCL
 - Cowboy Bebop
+- Baccano
 
 ### Movies
 - Everything Everywhere All at Once (rewatch)
