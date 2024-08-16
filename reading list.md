@@ -17,7 +17,6 @@
 
 ### Anime
 - Made in Abyss
-- Death Parade
 - Ping Pong: The Animation
 - The Tatami Galaxy
 - Gurren Lagann
