@@ -17,6 +17,7 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - homecoming serf cover
 - mesmerizer translyrics
 - not a devil translyrics
+- war arc story
 
 ### backburner (roughly sorted by probably soon to probably never):
 - unnamed song
