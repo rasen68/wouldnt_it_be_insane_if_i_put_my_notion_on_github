@@ -14,13 +14,13 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - hey there delilah in a minor
 - learning bass i think??
 - custom mtg set
+- war arc story
+- unnamed song
+
+### backburner (roughly sorted by probably soon to probably never):
 - homecoming serf cover
 - mesmerizer translyrics
 - not a devil translyrics
-- war arc story
-
-### backburner (roughly sorted by probably soon to probably never):
-- unnamed song
 - acoustic fingerstyle playlist
 - lead guitar playlist
 - bitcrush (rhythm game rpg)
