@@ -38,14 +38,13 @@
 ### Other
 - Transistor (because i still haven't played it after a friend bought it for me 2 years ago)
 - 1000x Resist
-- Melanie Martinez 
-- JoCo looks back
+- Melanie Martinez
 - kentucky route zero
-- Porter Robinson
 - 21 pilots vessel
 - corinne rae bailey or whatever he namewas
 - swae lee
 - blink 182
+- sheena ringo
 - Bossa Nova (the entire genre of music i guess)
 - Bartkira (..thing)
 - The Left-Right game (podcast)
