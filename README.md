@@ -16,6 +16,7 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - custom mtg set
 - war arc story
 - unnamed song
+- ks roles
 
 ### backburner (roughly sorted by probably soon to probably never):
 - homecoming serf cover
