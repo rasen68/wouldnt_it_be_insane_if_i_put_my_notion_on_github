@@ -40,6 +40,8 @@
 - 1000x Resist
 - Melanie Martinez
 - kentucky route zero
+- disco elysium
+- good kid maad city, damn, the new one
 - 21 pilots vessel
 - corinne rae bailey or whatever he namewas
 - swae lee
