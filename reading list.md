@@ -2,6 +2,7 @@
 - Toxic Positivity by Whitney Goodman (just bought this)
 - Invisible Cities by Italo Calvino
 - The Quran by God
+- Wonderbook by Jeff Vandermeer
 - Winning Ways for your Mathematical Plays by Elwyn Berlekamp, John Conway, and Richard Guy
 - The Three-Body Problem by Liu Cixin 
 - Wild Swans by Jung Chang
