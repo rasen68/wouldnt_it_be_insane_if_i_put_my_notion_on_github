@@ -8,6 +8,8 @@
 - Wild Swans by Jung Chang
 - The Fault in Our Stars by John Green
 - Everything by Haruki Murakami tbh
+- The City & The City by China Mieville
+- The City in the Middle of the Night by Charlie Jane Anders
 - Alice Isn't Dead by Joseph Fink
 
 ### Manga
