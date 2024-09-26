@@ -12,7 +12,6 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - wanikani (learning japanese via kanji srs)
 - cover of nothing's working out by meiyo
 - hey there delilah in a minor
-- learning bass i think??
 - custom mtg set
 - war arc story
 - unnamed song
