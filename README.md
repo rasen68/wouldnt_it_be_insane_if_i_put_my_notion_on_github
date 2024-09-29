@@ -10,14 +10,12 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 
 ### stovetop (projects worked on in the last week)
 - wanikani (learning japanese via kanji srs)
-- cover of nothing's working out by meiyo
 - hey there delilah in a minor
 - custom mtg set
 - war arc story
 - unnamed song
 
 ### backburner (roughly sorted by probably soon to probably never):
-- homecoming serf cover
 - mesmerizer translyrics
 - not a devil translyrics
 - acoustic fingerstyle playlist
