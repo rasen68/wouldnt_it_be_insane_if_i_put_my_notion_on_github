@@ -3,7 +3,7 @@
 probably don't tell me if you found this somehow
 
 ### stats
-Chris, Rui, sometimes Rasen | 19 | ABC | he/him | 5'7" | 135 lbs | ENFP-A (<- i just took the test so i could put it heT)
+Chris, Rui, sometimes Rasen | 19 | ABC | he/him | 5'8" | 135 lbs | ENFP-A (<- i just took the test so i could put it heT)
 
 computer science, lyrics, teaching, chinese cooking, storytelling, japanese, mandarin, j->e translation, songwriting, guitar, fencing, 
 math i guess, rapping, mixing, running, piano, ice skating, rock climbing, linguistics, ms paint art??, magic the gathering
