@@ -8,14 +8,15 @@ Chris, Rui, sometimes Rasen | 19 | ABC | he/him | 5'8" | 135 lbs | ENFP-A (<- i 
 computer science, lyrics, teaching, chinese cooking, storytelling, japanese, mandarin, j->e translation, songwriting, guitar, fencing, 
 math i guess, rapping, mixing, running, piano, ice skating, rock climbing, linguistics, ms paint art??, magic the gathering
 
-### stovetop (projects worked on in the last week)
-- wanikani (learning japanese via kanji srs)
+### stovetop (projects worked on in the last ~2 weeks)
+- nothing's working out cover
 - hey there delilah in a minor
 - custom mtg set
 - war arc story
 - unnamed song
 
 ### backburner (roughly sorted by probably soon to probably never):
+- wanikani (learning japanese via kanji srs)
 - mesmerizer translyrics
 - not a devil translyrics
 - acoustic fingerstyle playlist
