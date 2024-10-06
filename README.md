@@ -11,17 +11,18 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 ### stovetop (projects worked on in the last ~2 weeks)
 - nothing's working out cover
 - hey there delilah in a minor
-- custom mtg set
-- war arc story
 - unnamed song
+- bitcrush (rhythm game rpg)
+- fingerstyle guitar playlist
 
 ### backburner (roughly sorted by probably soon to probably never):
+- custom mtg set
+- war arc story
 - wanikani (learning japanese via kanji srs)
 - mesmerizer translyrics
 - not a devil translyrics
 - acoustic fingerstyle playlist
 - lead guitar playlist
-- bitcrush (rhythm game rpg)
 - silly crossword
 - silhouette translyrics + cover
 - spikeball (song)
