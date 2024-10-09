@@ -26,10 +26,8 @@ math i guess, rapping, mixing, running, piano, ice skating, rock climbing, lingu
 - lead guitar playlist
 - crossword generator
 - silhouette translyrics + cover
-- bibideba translyrics
 - episodic dr who style story
 - the strugglers (custom ttrpg)
-- the rest of my original songs folder
 
 ### freezer (ideas, haven't started, may never)
 - scamp music library song
